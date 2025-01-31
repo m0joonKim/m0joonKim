@@ -1,4 +1,4 @@
-# 🔥 KIM MYOUNGJOON 🔥
+# KIM MYOUNGJOON
 <div align="center">
 
 
